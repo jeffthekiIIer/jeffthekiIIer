@@ -1,5 +1,7 @@
 WE need to cancel jane for being a lesboy puppygirlboything😭 you people are SOOOO hateful omfg just look at my pronoun.cc do u think i am a cishetman who seriously calls himself a lesbian, please read https://github.com/lesboyreclaim
 
+being called invalid aside new rentry coming soon
+
 #1 Jeff the Killer Fan & Yumeshipper
 
 
