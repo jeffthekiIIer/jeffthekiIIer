@@ -1,4 +1,4 @@
-WE need to cancel jane for being a lesboy puppygirlboything😭 you people are SOOOO hateful omfg please read https://github.com/lesboyreclaim
+ you people are SOOOO hateful omfg please read https://github.com/lesboyreclaim
 
 #1 Jeff the Killer Fan & Yumeshipper
 
