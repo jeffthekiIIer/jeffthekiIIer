@@ -1,4 +1,4 @@
-WE need to cancel jane for being a lesboy puppygirlboything😭 you people are SOOOO hateful omfg 
+WE need to cancel jane for being a lesboy puppygirlboything😭 you people are SOOOO hateful omfg just look at my pronoun.cc do u think im a cis het man...
 
 #1 Jeff the Killer Fan & Yumeshipper
 
