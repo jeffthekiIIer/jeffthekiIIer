@@ -1,4 +1,4 @@
- you people are SOOOO hateful omfg please read https://github.com/lesboyreclaim (I did not make this, someone else all credit goes to them)
+ you people are SOOOO hateful omfg please read https://github.com/lesboyreclaim (I did not make this, someone else did all credit goes to them)
 
 #1 Jeff the Killer Fan & Yumeshipper
 
