@@ -1,3 +1,3 @@
-<img width="1080" height="1080" alt="image" src="https://github.com/user-attachments/assets/77399ec8-4936-4120-bf23-0e453c58318e" />
 
 #1 Jeff the Killer Fan. Jeff Yumeshipper, (Non-Sharer)
+![d7d26fdabde1cfc29f5484b6d0771300](https://github.com/user-attachments/assets/4307c89a-390b-4ed0-abc1-dda2810caf23)
