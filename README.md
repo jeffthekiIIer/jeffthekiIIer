@@ -3,7 +3,7 @@
 
 art by me, this is my au , Ok...
 
-![IbisPaint_fyW2aWLnFS](https://github.com/user-attachments/assets/cf2d9f06-3088-44a3-a63a-4a4361055201)
+<img width="586" height="567" alt="Discord_6Rni3RieGZ" src="https://github.com/user-attachments/assets/1de7e2fd-2d5c-43be-9431-424efadf8e9d" />
 
 
 Hi @Kassie @7TRIALS
