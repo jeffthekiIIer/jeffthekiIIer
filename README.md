@@ -1,3 +1,1 @@
-ꪆৎ Jeff the Killer's Boyfriend ( 2014 - 2025 )
-
 [main rentry](https://rentry.co/jeffthekiller) ‎ ‎ ‎[color my tree](https://colormytree.me/2025/01KB9HFXAR69PMGVABTD4S6RP1)‎ ‎ ‎ [lesboy rant](https://rentry.co/lesboyrant)‎ ‎ ‎ [atabook](https://jeffthekiller.atabook.org/)
