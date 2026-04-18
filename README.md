@@ -5,4 +5,3 @@
 
 ~ [rentry](https://rentry.co/jeffthekiller)
 
-~ [artfight](https://artfight.net/~jeffthekiIIer)
