@@ -5,3 +5,4 @@
 
 ~ [rentry](https://rentry.co/jeffthekiller)
 
+~ [prns](https://pronouns.cc/@jeffthekiller)
