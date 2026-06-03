@@ -10,6 +10,6 @@
 ~ [last fm](https://www.last.fm/user/autopsycutie)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rcz1t3kpewneahhisy6hhxu1j&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=ffb8c9&bar_color_cover=false">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rcz1t3kpewneahhisy6hhxu1j&cover_image=true&theme=spotify-embed&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&mode=light&bar_color=292929&bar_color_cover=false">
   </a>
 </p>
