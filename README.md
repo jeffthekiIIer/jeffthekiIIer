@@ -6,3 +6,5 @@
 ~ [rentry](https://rentry.co/jeffthekiller)
 
 ~ [prns](https://pronouns.cc/@jeffthekiller)
+
+last fm https://www.last.fm/user/autopsycutie
