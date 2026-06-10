@@ -8,6 +8,8 @@
 ~ [prns](https://pronouns.cc/@jeffthekiller)
 
 ~ [last fm](https://www.last.fm/user/autopsycutie)
+
+~ [artfight](https://artfight.net/~jeffthekiIIer)
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile">
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=rcz1t3kpewneahhisy6hhxu1j&cover_image=true&theme=natemoo-re&show_offline=false&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=919191&bar_color_cover=false">
