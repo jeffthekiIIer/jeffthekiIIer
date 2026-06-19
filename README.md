@@ -3,7 +3,7 @@
 
 ~ [atabook, sign please](https://jeffthekiller.atabook.org/)
 
-~ [rentry](https://rentry.co/jeffthekiller)
+~ [rentry](https://rentry.co/jeffthekiller) + [2nd rentry](https://rentry.co/TwylaBoogeyman)
 
 ~ [prns](https://pronouns.cc/@jeffthekiller)
 <p align="center">
