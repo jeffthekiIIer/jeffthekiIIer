@@ -2,6 +2,5 @@
 
 [ata](https://jeffthekiller.atabook.org/) [prns](https://pronouns.cc/@jeffthekiller) [rentry](https://rentry.co/jeffthekiller) [2nd rentry](https://rentry.co/TwylaBoogeyman)
 
-
+this is my baby lovebug and my art, go follow my [artfight](https://artfight.net/~jeffthekiIIer)
 <img width="2048" height="2048" alt="YjR7VvPrTnrxtoodhDFHZ9pAPIYOqc8Jlq9U5LUUbCbwzYNrugY30iggNO6j" src="https://github.com/user-attachments/assets/63b4a4e8-2936-41b7-b351-49ac456eda1c" />
-this is my baby lovebug and my art, go follow my artfight @jeffthekiiier
