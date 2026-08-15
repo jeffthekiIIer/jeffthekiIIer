@@ -1,2 +1,3 @@
-<img width="735" height="678" alt="e09172c7d4ed23df1ea83ce4ca4a928e" src="https://github.com/user-attachments/assets/5e46f34c-6721-45b4-8be4-29997d3d3826" />
-i love jeff the killer she's my cute lesbian wife
+<img width="494" height="768" alt="125526981_fzG9gVFYZw3fRmY" src="https://github.com/user-attachments/assets/838e1b62-c423-447d-b4e8-0af106f7f2ff" />
+
+my cute oc, made by @gravefIower
