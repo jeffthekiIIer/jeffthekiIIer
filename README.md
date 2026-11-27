@@ -3,4 +3,4 @@ If you're wondering how many jeff the killer skins I have, currently, it's 13. B
 
 my cute ass ocs 
 [![ok](https://i.imgur.com/xPTcZBT.gif)](https://toyhou.se/Wetu)
-<img width="494" height="768" alt="125526981_fzG9gVFYZw3fRmY" src="https://github.com/user-attachments/assets/f210c592-805d-4a75-abce-71a783feea3f" />
+<img width="204" height="300" alt="125526981_fzG9gVFYZw3fRmY" src="https://github.com/user-attachments/assets/f210c592-805d-4a75-abce-71a783feea3f" />
